@@ -1,0 +1,1 @@
+# vtb-robo-advisor-strategy-2025
